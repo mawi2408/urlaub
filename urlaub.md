@@ -33,3 +33,9 @@ Gesamt: **1820€**
 
 
 ## Reiseplan
+* **Palma**
+  * Stadt erkunden
+  * Catedral de Mallorca
+  * Alcudia Old Town und Cap de Formentor (Norden)
+  * Serra de Tramuntana (Westen)
+  * Strand
