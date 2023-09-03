@@ -4,6 +4,10 @@
 
 ## To-Do
 
+* Reisekrankenversicherung
+* Koffer
+* Spanisch lernen
+* Vorfreude!
 
 ## Flüge
 * **Hinflug**: STR -> PMI, 05. Sep. 13:37
