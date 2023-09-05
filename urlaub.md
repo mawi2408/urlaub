@@ -43,6 +43,10 @@ Gesamt: **1190€**
 * https://www.mallorca.com/de/aktivitaeten/mallorca-fahrradverleih
 * https://radverleih-mallorca.com/anbieter/
 
+### Auto
+
+* https://www.mallorca.com/de/urlaub/mobil-auf-mallorca
+
 
 
 ## Reiseplan
