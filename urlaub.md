@@ -8,9 +8,8 @@
 
 ## To-Do
 
-* Reisekrankenversicherung
-* Koffer
-* Spanisch lernen
+* Koffer kaufen
+* Spanisch lernen, wirklich!
 * Vorfreude!
 
 ## Flüge
