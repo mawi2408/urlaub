@@ -28,8 +28,6 @@
 Gesamt: **1190€**
 
 
-## Verkehrsmittel
-
 
 ## Reiseplan
 * **Palma**
